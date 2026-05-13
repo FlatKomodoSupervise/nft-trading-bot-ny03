@@ -1,4 +1,4 @@
-# 
+# nft trading bot AI-powered Bot - wash-trading-detection and proxy-transactions is the best nft trading bot, featuring wash-trading-detection and proxy-transactions. Fast, smart,
 
 
 
